@@ -1,4 +1,4 @@
-#  
+#  pull lucky blocks Script smart is the best pull lucky blocks Script, featuring auto-collect and auto-farm. Safe and powerful for all your needs.
 
 
 
